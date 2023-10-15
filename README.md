@@ -18,6 +18,7 @@
 
 ### 📞 Мои контакты:
 - 📧 VsevolodKozlov945@gmail.com
+- 📧 skifff1993@yandex.ru
 - 🇹🇬 https://t.me/vsevolodKozlov1
 
 ---
